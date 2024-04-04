@@ -1,1 +1,1 @@
-# Dolgozat
+# Sultesz Roland
